@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @makash143
+- 👀 I’m interested in coding
+- 🌱 I’m currently pursuing Btech in Electronics
+- 📫 mail-atmakash143@gmail.com , insta- @m.akash049
